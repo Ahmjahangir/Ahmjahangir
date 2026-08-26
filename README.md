@@ -1,16 +1,13 @@
-## Hi there 👋
+# Abu Hasan Muhammed Jahangir
 
-<!--
-**Ahmjahangir/Ahmjahangir** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Strategic Entrepreneur, Global IndustrialStrategist & Community Economic Development Leader** | Port Alberni, British Columbia, Canada
 
-Here are some ideas to get you started:
+Driving global trade, sustainable agri-food systems, public policy, and community growth.  
+Vice Chair @AlberniChamber
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Connect with me
+- 🌐 Website: [ahmjahangir.com](https://ahmjahangir.com)
+- 🆔 ORCID: [0009-0008-9677-6677](https://orcid.org/0009-0008-9677-6677)
+- 💼 LinkedIn: [abu-hasan-muhammed-jahangir](https://www.linkedin.com/in/abu-hasan-muhammed-jahangir-64551991)
+- 📘 Facebook: [ahm.jahangir](https://www.facebook.com/ahm.jahangir)
+- 🐦 X / Twitter: [@AHMJahangir5](https://x.com/AHMJahangir5)
