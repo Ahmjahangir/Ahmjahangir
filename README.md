@@ -1,6 +1,6 @@
 # Abu Hasan Muhammed Jahangir
 
-**Strategic Entrepreneur, Global IndustrialStrategist & Community Economic Development Leader** | Port Alberni, British Columbia, Canada
+**Strategic Entrepreneur, Global Industrial Strategist & Community Economic Development Leader** | Port Alberni, British Columbia, Canada
 
 Driving global trade, sustainable agri-food systems, public policy, and community growth.  
 Vice Chair @AlberniChamber
